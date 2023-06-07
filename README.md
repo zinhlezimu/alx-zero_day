@@ -1,1 +1,1 @@
-My first readme
+School is so tiring.
